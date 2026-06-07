@@ -1,4 +1,4 @@
-# Mini-Site do E-book: Protocolo Clínico Oficial: O Segredo de Sucesso  Boostaro Review 2026: Official Website, Price & Ingredient
+# Mini-Site do E-book: O Guia Definitivo do Vigor Masculino: Como Otimizar sua Circulação e Fazer o Seguro Boostaro purchese
 
 Este repositório contém o mini-site standalone e otimizado do seu e-book, gerado automaticamente por **Meu Easy World**.
 
